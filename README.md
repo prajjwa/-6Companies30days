@@ -1,4 +1,4 @@
-#ReviseWithArsh #6Companies30Days Challenge!
+ReviseWithArsh #6Companies30Days Challenge!
 P.S This can be started anytime in the month of January.
 For complete details , go through the video : https://linktw.in/FCGPbm
 Benefits (For the ones who complete the Challenge) :
